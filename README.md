@@ -1,4 +1,4 @@
-# ALL PROJECTS ON HOLD UNTIL 5/16/24 (NOT COUNTING INDEV ENGINE SINCE I CAN WORK ON IT FROM MY OLD CHROMEBOOK LOLZ)
+# MOST PROJECTS ON HOLD UNTIL 5/16/24 (I'm stuck on this shitty broken laptop until after testing.)
 
 Yoo welcome to my swag profile
 
