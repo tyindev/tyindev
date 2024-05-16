@@ -1,4 +1,4 @@
-# MOST PROJECTS ON HOLD UNTIL 5/16/24 (I'm stuck on this shitty broken laptop until after testing.)
+# MOST PROJECTS ON HOLD UNTIL ???
 
 Yoo welcome to my swag profile
 
