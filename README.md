@@ -1,5 +1,3 @@
-# MOST PROJECTS ON HOLD UNTIL ???
-
 Yoo welcome to my swag profile
 
 I uh do shits
